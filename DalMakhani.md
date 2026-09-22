@@ -29,5 +29,4 @@ Use a potato masher or an immersion blender to gently mash about a third of the 
 ## 6. The Grand Finale (Kasuri Methi & Cream)
 Rub the kasuri methi leaves firmly between your palms to crush them and sprinkle them into the pot to release their smoky, herbal oils. Add the butter and turn the heat down to low. Stir in the Crème d’Isigny until completely incorporated. Simmer gently on low for another 5 minutes to let the flavors meld into a rich, glossy sauce.
 Serve hot with garlic naan or basmati rice.
-Would you like to know how long this version will keep in the fridge, or do you need recommendations for a perfectly paired rice or beverage to complete the meal?
 
